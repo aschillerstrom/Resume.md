@@ -1,5 +1,4 @@
 # Amy Schillerstrom
-===============
 
 _Austin, TX_  
 _210-764-1014 / aschillerstrom@gmail.com_
